@@ -1,1 +1,1 @@
-Study from bilibili Mintnoil 
+Study from site bilibili user Mintnoil
